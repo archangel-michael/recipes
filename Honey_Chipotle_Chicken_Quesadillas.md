@@ -1,6 +1,6 @@
 # Honey Chipotle Chicken Quesadillas
 
-**Source:** @fairfiteats (Instagram)
+**Source:** [@fairfiteats](https://www.instagram.com/reel/DUyguDJiPPV/?igsh=MTY2dWpib3BubTh2eg==) (Instagram)
 **Saved:** 2026-04-13
 
 ---
