@@ -33,7 +33,7 @@
 
 ### Add-ins
 - 16 oz Brami pasta
-- 10 servings broccoli, boiled
+- 10 cups broccoli, boiled
 - 3/4 cup fat free shredded cheese (additional, added at end)
 
 ---
@@ -42,7 +42,7 @@
 
 1. **Load the crockpot** — Add chicken breast, cream cheese, 3/4 cup shredded cheese, BWW Parmesan Garlic sauce, and milk. Cook on **high for 3 hours**.
 
-2. **Cook the pasta** — 30 minutes before the chicken is done, cook the Brami pasta according to package directions. Boil broccoli separately.
+2. **Cook the pasta and broccoli** — 30 minutes before the chicken is done, cook the Brami pasta according to package directions. Boil **10 cups of broccoli** separately until tender.
 
 3. **Shred and combine** — Shred the chicken directly in the crockpot. Add cooked pasta, boiled broccoli, and the additional 3/4 cup shredded cheese. Stir to combine.
 
