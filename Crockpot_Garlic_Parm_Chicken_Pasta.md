@@ -9,7 +9,7 @@
 
 | Servings | Calories | Protein | Carbs | Fat |
 |----------|----------|---------|-------|-----|
-| 10       | 560      | 60g     | 43g   | 20g |
+| 10       | ~584     | 60g     | ~41g  | ~23g |
 
 ---
 
@@ -17,7 +17,7 @@
 
 ### Crockpot
 - 60 oz chicken breast
-- 1 block (8 oz) 1/3 fat cream cheese
+- 1 block (8 oz) Philadelphia Original Cream Cheese
 - 3/4 cup fat free shredded cheese
 - 1 bottle Buffalo Wild Wings Parmesan Garlic sauce
 - 8 oz Member's Mark Ultra Filtered 2% Reduced Fat Milk
