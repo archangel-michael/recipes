@@ -20,7 +20,7 @@
 - 1 block (8 oz) 1/3 fat cream cheese
 - 3/4 cup fat free shredded cheese
 - 1 bottle Buffalo Wild Wings Parmesan Garlic sauce
-- 8 oz fat free Fairlife milk
+- 8 oz Member's Mark Ultra Filtered 2% Reduced Fat Milk
 
 ### Add-ins
 - 16 oz Brami pasta
