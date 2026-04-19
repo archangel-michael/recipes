@@ -19,11 +19,11 @@
 - 60 oz chicken breast
 - 1 block (8 oz) 1/3 fat cream cheese
 - 3/4 cup fat free shredded cheese
-- 1 bottle Flyin Saucy Garlic Parm sauce
+- 1 bottle Buffalo Wild Wings Parmesan Garlic sauce
 - 8 oz fat free Fairlife milk
 
 ### Add-ins
-- 2 boxes Banza pasta (chickpea pasta — high protein)
+- 16 oz Brami pasta
 - 10 servings broccoli, boiled
 - 3/4 cup fat free shredded cheese (additional, added at end)
 
@@ -35,7 +35,7 @@
 Add chicken breast, cream cheese, 3/4 cup shredded cheese, garlic parm sauce, and Fairlife milk to the crockpot. Cook on **high for 3 hours**.
 
 ### 2. Cook the pasta
-30 minutes before the chicken is done, cook both boxes of Banza pasta according to package directions. Boil broccoli separately.
+30 minutes before the chicken is done, cook the Brami pasta according to package directions. Boil broccoli separately.
 
 ### 3. Shred and combine
 When chicken is done, shred it directly in the crockpot. Add cooked pasta, boiled broccoli, and the additional 3/4 cup shredded cheese. Stir to combine.
@@ -48,7 +48,7 @@ Divide evenly into 10 bowls.
 ## Notes
 
 - Banza pasta (chickpea-based) contributes extra protein vs. regular pasta
-- Flyin Saucy is a wing sauce brand — any garlic parmesan wing/pasta sauce works as substitute
+- Buffalo Wild Wings Parmesan Garlic sauce available at most grocery stores
 - Can substitute broccoli with spinach or zucchini to change carb profile
 - Stores well in the fridge for 4-5 days; freezes for up to 3 months
 
