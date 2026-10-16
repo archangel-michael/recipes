@@ -58,7 +58,7 @@ Estimates from standard food values, not lab-tested.
 ## Directions
 
 1. **Cook the chicken** — season and bake at 400°F for 22-28 min until it reaches 165°F, or poach it. Rest 10 min, then shred or chop small. Let it cool.
-2. **Make the dressing** — whisk all dressing ingredients until smooth. Adjust with lemon, vinegar or herbs before reaching for salt.
+2. **Make the dressing** — whisk all dressing ingredients until smooth. Adjust with lemon, vinegar or herbs to taste.
 3. **Build the salad** — combine the chicken, pepperoni, onion, pepperoncini, tomatoes, cucumber, chickpeas, lentils and slaw in a large bowl. Toss with the dressing.
 4. **Add the avocado** — fold it in just before serving. For meal prep, add it to each portion the day you eat it, since it browns.
 5. **Store** — refrigerate covered, up to 4-5 days.
@@ -67,7 +67,6 @@ Estimates from standard food values, not lab-tested.
 
 ## Notes
 
-- Sodium swaps vs. the original: baked chicken instead of rotisserie (store rotisserie is often brine-injected), 1 oz pepperoni instead of salami + pepperoni, lemon juice instead of pepperoncini jar juice, and little to no added salt.
+- Sodium swaps vs. the original: baked chicken instead of rotisserie (store rotisserie is often brine-injected), 1 oz pepperoni instead of salami + pepperoni, and lemon juice instead of pepperoncini jar juice.
 - Use undressed broccoli slaw or coleslaw mix; skip any bag with a dressing packet.
-- Avoid potassium-chloride salt substitutes unless your doctor approves.
 - If the salad seems dry with the extra chicken, thin the dressing with 1-2 tbsp water or lemon juice.
